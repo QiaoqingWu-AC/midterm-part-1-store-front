@@ -1,0 +1,1 @@
+# midterm-part-1-store-front
